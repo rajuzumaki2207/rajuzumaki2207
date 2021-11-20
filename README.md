@@ -5,6 +5,6 @@ In my free time I try to lear code, and data science is my current love.
 Hobbies- I am a biker , love mountain trekking, gamer , lifting weights and playing basketball.
 
 
-Feel free to connect me through my linkedin
+Feel free to connect with me through my linkedin  https://www.linkedin.com/in/rajdeep-shil-1982528a/
 
 
